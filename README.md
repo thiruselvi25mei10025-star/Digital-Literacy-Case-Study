@@ -13,3 +13,4 @@ A student uses online platforms like Google Classroom and YouTube to learn conce
 
 ## Conclusion
 Digital literacy is essential for students to succeed in the modern digital world.
+google form link (https://forms.gle/xN73Ex4CHZiMSa3h8)
